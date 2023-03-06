@@ -8,8 +8,9 @@ telegram mass dm bot - Send a message to all members DM (direct message).
 Contact Only for Serious Business, clowns Stay Away.
 
 - Telegram Username : @HamzaXpro
-- WhatsApp Contact : +919844731512
+- WhatsApp Contact : +919916988649
 - www.hamzaxpro.com
+- [Buy Telegram Accounts](https://www.hamzaxpro.com/telegram-accounts-for-sale)
 
 
 ## Telegram Bulk Personal Message Sender
